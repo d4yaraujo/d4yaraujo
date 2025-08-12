@@ -7,7 +7,7 @@
 
 **`Desenvolvedora de Front-End`**
 
-Me chamo Dayane, tenho 16 anos e moro em Guarulhos, estou cursando o Ensino Médio e faço curso de Inglês.
+Me chamo Dayane, tenho 17 anos e moro em Guarulhos, estou cursando o Ensino Médio e faço curso de Inglês.
 
 
 ---
